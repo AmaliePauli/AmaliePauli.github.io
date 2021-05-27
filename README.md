@@ -1,1 +1,0 @@
-# AmaliePauli.github.io
